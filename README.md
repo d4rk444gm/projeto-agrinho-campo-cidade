@@ -20,18 +20,12 @@ Nossos Eventos
 Feira de produtos
 Feira de Produtos Locais
 
-15 de Junho, 2024 | 09:00 - 18:00
-
 Feira com produtores rurais da região oferecendo alimentos frescos e artesanato, com oficinas sobre agricultura sustentável.
 Festa tradicional
 Festa Tradicional Caipira
 
-22 de Junho, 2024 | 16:00 - 23:00
-
 Celebração com música caipira, danças tradicionais, comidas típicas e atividades que resgatam as raízes do interior.
 Workshop
 Workshop de Agricultura Urbana
-
-29 de Junho, 2024 | 14:00 - 17:00
 
 Aprenda técnicas para cultivar alimentos em pequenos espaços urbanos, promovendo a conexão com a terra mesmo na cidade.
